@@ -7,7 +7,7 @@ He has a side business reselling items on Ebay, and said I should start buying s
 
 He charges a flat rate of 30 percent of the final sale price.  I figured this was a little high, considering that it's the same amount of work to list a 4 dollar item as it is a 4898234 dollar item.  
 
-Considering the work that gets done on his side, which is listing, responding to emails, and shipping, there should be a tiered system of commission.
+Considering the work that gets done on his side, which is listing, responding to emails, and shipping, there should be a tiered system of commission, or a commission based on the profit margin, instead of charging a flat 30 percent of the total sale price.
 
 In short, I used this to figure out whether I was being screwed over, which I was.
 
